@@ -10,5 +10,4 @@ Assignment4 video link:
 https://drive.google.com/file/d/1rVAg1oFXYDUajeY3ifY0MCVjeVy2lZdS/view?usp=sharing  
 Assignment5 video link:
 https://drive.google.com/file/d/17ue7TlPvbX6fnA73fJLibfLgcOKVujSU/view?usp=sharing  
-Assignment6 video link:  
-https://drive.google.com/file/d/14xbCUqm1RtM7Pfg6wQHWnh31JShYnQlm/view?usp=sharing  
+Assignment6 video link: https://drive.google.com/file/d/14xbCUqm1RtM7Pfg6wQHWnh31JShYnQlm/view?usp=sharing  
